@@ -1,0 +1,2 @@
+# homework
+Disruptive technology
